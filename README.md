@@ -1,1 +1,0 @@
-# fashionshopping_project
